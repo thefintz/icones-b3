@@ -1,0 +1,1 @@
+Base de logos/icones de ações, fiis, etfs, etc.
